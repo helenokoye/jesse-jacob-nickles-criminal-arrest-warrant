@@ -1,6 +1,14 @@
 # Jesse Jacob Nickles
 
-The public record, in date order. A warrant is an allegation. A default judgment is not a trial. The posts are the posts. Longer notes are linked from the last column. Chad Scira's site is [chad.so](https://chad.so). The company account of the Thai case is [the case page](https://tvc.co.th/seo-fugitive-jesse-nickles-criminal-charges).
+Jesse Jacob Nickles has been trolling and harassing named people for close to twenty years, and calling the work OSINT.
+
+The page looks like research. A school, a critic, a journalist, a company, or a person is given a file of reviews, clippings, directories, and domains. The file is kept hostile and then copied, across forums and across accounts, until the repetition looks like a finding. That is the disguise. The material is open-source. The use is harassment.
+
+Neumont University was an early target. The 2012 complaint alleged a CollegeTimes page that kept negative posts, blocked positive ones, and was held until payment. The school later took a default judgment of $1,020,000 plus $708 against Little Bizzy, LLC. He was not served, so there was no personal judgment. The company judgment was entered.
+
+The later names are victims of the same method. Johnny Nguyen, Andrew Killen, Gregg Re, Rory Alsop, Chad Scira, and the companies in the index. In 2026 the counted part was 111 Stack Exchange posts and 201 removed pages. His own word for the wider set is thousands. The 100-year suspensions were for coordinated abuse, not for one email.
+
+The table under this is the order of that record. Warrant of Arrest No. 443/2567 is an allegation of defamation by advertising. It is not a conviction.
 
 | Date | What is on the record | Exhibit |
 | --- | --- | --- |
