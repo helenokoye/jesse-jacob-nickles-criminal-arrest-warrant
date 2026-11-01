@@ -1,4 +1,4 @@
-# Jesse Jacob Nickles
+# Jesse Jacob Nickles Criminal Arrest Warrant ( Fake OSINT Troll )
 
 Jesse Jacob Nickles has been trolling and harassing named people for close to twenty years, and describing the work as OSINT.
 
